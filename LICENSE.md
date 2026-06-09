@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://HexaHornetManor.github.io/survive-lava-for-b-hp26/ ) |
  |---------------------|----------------------:|
 
 
